@@ -2,7 +2,7 @@
 
 :yum: Here is a **LAZY** and **FOOLISH** life enjoyer.
 
-A PhD (Permanent Head Damage) Student without any articles. :innocent:
+A PhD (Permanent Head Damage) Student without any paper. :innocent:
 
 I'll commit on a whim.
 
